@@ -1,1 +1,0 @@
-https://Anchrep.github.io/rsschool-cv/cv
