@@ -1,1 +1,1 @@
-https://Anchrep.github.io/rsschool-cv/CV
+https://anchrep.github.io/rsschool-cv/cv
